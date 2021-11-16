@@ -2,3 +2,6 @@
 
 1. "I've got two tickets to paradise, Won't you pack your bags, we'll leave tonight" - Two Tickets to Paradise, Eddie Money
 
+2. "My shadow's the only one that walks beside me, My shallow heart's the only thing that's beating" - Boulevard of Broken Dreams, Green Day
+
+3. "It is a beautiful day" - Beautiful Day, U2
