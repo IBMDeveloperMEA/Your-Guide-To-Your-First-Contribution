@@ -4,3 +4,4 @@
 
 2. "My shadow's the only one that walks beside me, My shallow heart's the only thing that's beating" - Boulevard of Broken Dreams, Green Day
 
+3. "It is a beautiful day" - Beautiful Day, U2
